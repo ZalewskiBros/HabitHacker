@@ -6,5 +6,5 @@ I have not programmed this app to collect any personally identifiable informatio
 
 Yours sincerely,  
 Edward Zalewski.  
-Bristol, UK.  
+
 zalewskibros@hotmail.com
